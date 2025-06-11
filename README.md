@@ -1,7 +1,7 @@
 ## Hi there 👋
 ## Me chamo vyttor
 ## estudo em emilianopolis
-## sou fa do cr7
+## cr7 melhor que messi hahaha
 
 
 
